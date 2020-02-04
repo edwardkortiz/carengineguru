@@ -1,0 +1,2 @@
+# nighthawksetup
+Although Netgear Nighthawk is designed keeping gaming lovers in mind, this doesn’t make it a gaming exclusive device. There are various models of routers and extenders under the line of Netgear Nighthawk which provides performance, speed and power to your home network. Whether you want to stream videos, play games, or simply browse, a Netgear Nighthawk will not disappoint you, though you may face Netgear Nighthawk setup issues at times.
